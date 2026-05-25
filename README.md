@@ -3,10 +3,12 @@
 Traditional handmade Banarasi silk sarees from Varanasi.
 
 ## Our Collection
-- Bridal Banarasi Sarees
+- Khaddi Georgette Banarasi Sarees
 - Katan Silk Sarees
-- Organza Sarees
-- Handloom Sarees
+- Kora Silk Sarees
+- Tissue Silk Sarees
+- Tussar Georgette Sarees
+- Chiffon Sarees
 
 Visit Website:
 https://truthfab.com/
